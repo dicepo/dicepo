@@ -1,17 +1,17 @@
-this isnt pretty idgaf
-hi Im Isaac / macklin. or wtv tf. call me pony names if u want
+this isnt pretty idgaf<br>
+hi Im Isaac / macklin. or wtv tf. call me pony names if u want<br>
 im 18. pls only he. no they no nothin bro
 
-i like just abt anything you can name
-but *mostly* fixated right now on hockey & f1
+i like just abt anything you can name<br>
+but *mostly* fixated right now on hockey & f1<br>
 PLEASE bro PLEASE> hockey/f1 fans int PLEAASE
 
-preferrably 17+ friending me i get Iffy abt people under that.
+preferrably 17+ friending me i get Iffy abt people under that.<br>
 ill chat but probably wont stick around you 4 Both of our comforts
 
-skin doesnt always = front
-i block freely
-im very blunt and heavily masked
+skin doesnt always = front<br>
+i block freely<br>
+im very blunt and heavily masked<br>
 most people will forcibly blend in and will not lyk whos fronting #idgaf
 
 <!--
