@@ -12,6 +12,7 @@ ill chat but probably wont stick around you 4 Both of our comforts
 
 skin doesnt always = front<br>
 i block freely<br>
+i dont like tonetags & will not use them<br>
 im very blunt and heavily masked<br>
 most people will forcibly blend in and will not lyk whos fronting #idgaf
 
